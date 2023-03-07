@@ -1,2 +1,2 @@
 # lucas
-Meningkatkan minat belajar
+Terus semangat dalam belajar
